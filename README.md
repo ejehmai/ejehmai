@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ejehmai
-- 👀 I’m interested in him only
+- 👀 I’m interested in cats and him
 - 🌱 I’m currently learning at christian Samaritan School (CSS)
 - 💞️ I’m looking to collaborate on tt
 - 📫 How to reach me 09533582062 call me roarhahah
